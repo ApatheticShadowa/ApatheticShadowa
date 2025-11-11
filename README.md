@@ -1,3 +1,9 @@
 ## Hi!
 __ 
 ' '𝓝𝓾𝓭𝓲𝓽𝔂 𝓲𝓼 𝓪𝓻𝓽, 𝓸𝓷𝓵𝔂 𝔀𝓱𝓮𝓷 𝓷𝓸𝓽 𝓼𝓮𝔁𝓾𝓪𝓵𝓲𝔃𝓮𝓭. '' 
+
+
+[PRONOUNS](https://en.pronouns.page/@spam444extra) 
+
+
+
