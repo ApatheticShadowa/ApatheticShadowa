@@ -3,7 +3,7 @@ __
 ' '𝓝𝓾𝓭𝓲𝓽𝔂 𝓲𝓼 𝓪𝓻𝓽, 𝓸𝓷𝓵𝔂 𝔀𝓱𝓮𝓷 𝓷𝓸𝓽 𝓼𝓮𝔁𝓾𝓪𝓵𝓲𝔃𝓮𝓭. '' 
 
 
-[PRONOUNS](ttps://en.pronouns.page/@taintedShadow) 
+[PRONOUNS](https://en.pronouns.page/@taintedShadow)
 
 [STRAW](https://whimsicallalal.straw.page)
 
