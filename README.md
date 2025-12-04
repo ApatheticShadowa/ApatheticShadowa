@@ -43,9 +43,10 @@ __
 ____ 
 
 
-COMF : L LAWLIET (death note) 
-       BRAD THANIYEL (blocktales) / GRIEFER
-       SEBASTIAN SOLACE (Pressure, roblox) 
-      SPAMTON G. SPAMTON (deltarune) 
-       [ [  EDIT HERE  ] ] 
+COMF : 
+- L LAWLIET (death note) 
+-  BRAD THANIYEL (blocktales) / GRIEFE 
+- SEBASTIAN SOLACE (Pressure, roblox) 
+-  SPAMTON G. SPAMTON (deltarune) 
+-   [ [  EDIT HERE  ] ] 
 
