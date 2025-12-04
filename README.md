@@ -1,4 +1,4 @@
-## fish
+## Hello!!
 __ 
 ' '𝓝𝓾𝓭𝓲𝓽𝔂 𝓲𝓼 𝓪𝓻𝓽, 𝓸𝓷𝓵𝔂 𝔀𝓱𝓮𝓷 𝓷𝓸𝓽 𝓼𝓮𝔁𝓾𝓪𝓵𝓲𝔃𝓮𝓭. '' 
 
@@ -40,11 +40,12 @@ __
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢰⡇⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠛⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-R E S T  I N  P I E C E   J C  <3   My kitty i miss you :( 
+____ 
 
 
-hi im taylor the creative please send me 3000 dollar so i can go back to amerika 
-" well how do i know its you?" 
-ok ok ok la lalala
+COMF : L LAWLIET (death note) 
+       BRAD THANIYEL (blocktales) / GRIEFER
+       SEBASTIAN SOLACE (Pressure, roblox) 
+      SPAMTON G. SPAMTON (deltarune) 
+       [ [  EDIT HERE  ] ] 
 
-'' <img src="https://media.discordapp.net/attachments/1417614717404581992/1437862541215793303/73315eb08c345900a3e5b5fad0645f86.png?ex=6914c958&amp;is=691377d8&amp;hm=d0cc3b67073b2c6a4c61cfd2d4cdc80d54228bd610fae3b7f0870d3c0abf0a77&amp;=&amp;format=webp&amp;quality=lossless&amp;width=491&amp;height=441" alt="Image"/> ' '
