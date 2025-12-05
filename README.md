@@ -50,7 +50,14 @@ COMF :
 
 
 
- <img src="https://gifcity.carrd.co/assets/images/gallery47/529d098d.gif?v=e3c0bc0f" alt="Untitled"/>  <img src="https://gifcity.carrd.co/assets/images/gallery49/f4bdde8e.gif?v=e3c0bc0f" alt="Untitled"/>
+ <img src="https://gifcity.carrd.co/assets/images/gallery47/529d098d.gif?v=e3c0bc0f" alt="Untitled"/>  
  ALWAYS C=H PLZZ! IM LONLEY I SWEAR I MIGHT ACT ANXIOUS AT FURST BUT IM NICE  
 
- <img src="https://gifcity.carrd.co/assets/images/gallery49/f4bdde8e.gif?v=e3c0bc0f" alt="Untitled"/>  
+ <img src="https://gifcity.carrd.co/assets/images/gallery49/f4bdde8e.gif?v=e3c0bc0f" alt="Untitled"/>   
+
+ RECCOMNEDED WEBSITES : 
+
+ [Color palletes for ponies / art](https://colorhunt.co/)
+ [pixles !](https://rentry.co/borderpixels) 
+ [more pixles :3](https://gifcity.carrd.co/) 
+ [funni website 4 bordem](https://aidn.jp/contents/)
