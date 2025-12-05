@@ -20,7 +20,7 @@ ___
 
 COMF : 
 - L LAWLIET (death note) 
--  BRAD THANIYEL (blocktales) / GRIEFE 
+-  BRAD THANIYEL (blocktales) / GRIEFER
 - SEBASTIAN SOLACE (Pressure, roblox) 
 -  SPAMTON G. SPAMTON (deltarune) 
 -   [ [  EDIT HERE  ] ] 
@@ -57,7 +57,9 @@ COMF :
 
  RECCOMNEDED WEBSITES : 
 
- [Color palletes for ponies / art](https://colorhunt.co/)
- [pixles !](https://rentry.co/borderpixels) 
- [more pixles :3](https://gifcity.carrd.co/) 
- [funni website 4 bordem](https://aidn.jp/contents/)
+- [Color palletes for ponies / art](https://colorhunt.co/)
+- [pixles !](https://rentry.co/borderpixels) 
+ - [more pixles :3](https://gifcity.carrd.co/) 
+-  [funni website 4 bordem](https://aidn.jp/contents/) 
+
+<img src="https://files.catbox.moe/9925aj.png"/> VISIT THIS SONG PLS PLS : [CROSSROADS](https://open.spotify.com/track/1lVl9FcccInbHtLxJmawiC?si=191a3b99998a4043)
