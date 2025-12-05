@@ -1,7 +1,6 @@
 ## ' ' ; most of what i say is nonsense., , 
 <img src="https://gifcity.carrd.co/assets/images/gallery73/4d819aa7.png?v=e3c0bc0f" alt="Untitled"/><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/643a0de2-69a4-4198-a97b-2bd61938bbb1" /><img src="https://gifcity.carrd.co/assets/images/gallery73/4d819aa7.png?v=e3c0bc0f" alt="Untitled"/><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/13e77854-d01a-4f73-8a75-24a0f4b3098c" /><img src="https://gifcity.carrd.co/assets/images/gallery73/4d819aa7.png?v=e3c0bc0f" alt="Untitled"/><img src="https://gifcity.carrd.co/assets/images/gallery73/4d819aa7.png?v=e3c0bc0f" alt="Untitled"/><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/49cc4326-ee27-43dc-9852-e31c9c8106ca" />
-<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/df0356ad-3276-4327-acb6-7b87cfc3917a" /><img src="https://gifcity.carrd.co/assets/images/gallery73/4d819aa7.png?v=e3c0bc0f" alt="Untitled"/><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/22555bae-f2a9-4367-9224-093f7cdcdd17" />
-
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/df0356ad-3276-4327-acb6-7b87cfc3917a" />
 
 
 
