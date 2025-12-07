@@ -17,3 +17,6 @@
 
  ' ' SHOOTING VENOM RIGHT INTO MY BLOOD -BLOOD-BLOOD-BLOOD !!!  , ,  
  <img src="https://wilardo.crd.co/assets/images/gallery18/130adc56.png?v=b62e9456"/> [FIRE4FUN](https://open.spotify.com/track/5ww51aDl5gIrLgamIMvywo?si=e589a00827b04149)
+
+
+## <img src="https://wilardo.crd.co/assets/images/gallery18/5d0964ed.png?v=b62e9456"/> HVY WIP!!1!
