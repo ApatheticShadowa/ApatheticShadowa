@@ -1,8 +1,7 @@
 ## ' '  But I assure you, L is real. I do exist. Now, try to kill me ! ,  , 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/1cdf7c00-9e1f-49f9-85db-f687f8e9b338" /> 
 
-[TWITCH](https://www.twitch.tv/spamtincan)        [ATA](https://devestof3x.atabook.org/)      [TREE](https://colormytree.me/2025/01KBVT9D2Y72ZJJ2Y5F5TGCDF1)      [STRAW](https://whimsicallalal.straw.page)
-
+[TWITCH](https://www.twitch.tv/spamtincan)   .       [ATA](https://devestof3x.atabook.org/)    .    [TREE](https://colormytree.me/2025/01KBVT9D2Y72ZJJ2Y5F5TGCDF1)    .    [STRAW](https://why-would-you-name-this.straw.page) 
 <img src="https://files.catbox.moe/nsimqp.gif"/>   <img src="https://files.catbox.moe/uah3md.gif"/>  
 
 <img src="https://gifcity.carrd.co/assets/images/gallery39/efdd1db5.png?v=e3c0bc0f" alt="Untitled"/> 
@@ -20,5 +19,6 @@
 
 
 ## <img src="https://wilardo.crd.co/assets/images/gallery18/5d0964ed.png?v=b62e9456"/> HVY WIP!!1!
+
 
 
