@@ -6,7 +6,7 @@
 
 𝑯𝒆𝒍𝒍𝒐, 𝒇𝒆𝒆𝒍 𝒇𝒓𝒆𝒆 𝒕𝒐 𝒄𝒂𝒍𝒍 𝒎𝒆 𝑹𝒊𝒓𝒊, 𝑹𝒚𝒖𝒛𝒂𝒌𝒊, 𝒐𝒓 𝒎𝒚 𝒄𝒖𝒓𝒓𝒆𝒏𝒕 𝒄𝒐𝒔𝒑𝒍𝒂𝒚.
 
-𝑻𝑯𝑬 irl L lawliet.
+𝑻𝑯𝑬 irl L ~~lawliet.~~ Ryuzaki.
 
 
 .
@@ -77,3 +77,4 @@ RYUZAKI OUT !1!
 
 
 ' '  yes im a little femboy, i got my femboy socks and im kicking my feet txting you <3 xoxo , ,
+
