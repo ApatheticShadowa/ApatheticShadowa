@@ -73,10 +73,10 @@ RYUZAKI OUT !1!
 
 ![2368a0c1](https://github.com/user-attachments/assets/be2217ae-dbd1-4a73-afd8-b610ffcf513e)
 
-![1c85c0a0](https://github.com/user-attachments/assets/ec5453af-150a-417d-9800-381f0a8a4264) 
 
 
 ' '  yes im a little femboy, i got my femboy socks and im kicking my feet txting you <3 xoxo , ,
+
 
 
 
