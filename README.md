@@ -1,6 +1,9 @@
 ## ' '  The bells are very loud today. ,  , 
 
-[T](https://www.twitch.tv/spamtincan)WITCH   .       [A](https://devestof3x.atabook.org/)TA    .    [T](https://colormytree.me/2025/01KBVT9D2Y72ZJJ2Y5F5TGCDF1)REE    .    [S](https://why-would-you-name-this.straw.page)TRAW     . EN. [P](https://en.pronouns.page/@Doctor0fPlague)RNZ
+[T](https://www.twitch.tv/spamtincan)WITCH   .       [A](https://devestof3x.atabook.org/)TA    .    [T](https://colormytree.me/2025/01KBVT9D2Y72ZJJ2Y5F5TGCDF1)REE    .    [S](https://why-would-you-name-this.straw.page)TRAW     . EN. [P](https://en.pronouns.page/@Doctor0fPlague)RNZ 
+
+[Disorder talk](https://l0z3rs0l4r.neocities.org/text) ![32e9614e](https://github.com/user-attachments/assets/18e64ac0-eed4-4f83-89e4-c01449194149) TW BRIGHT BACKGROUND, DISORDER MENTIONS 
+
 
 <img width="1064" height="353" alt="image" src="https://github.com/user-attachments/assets/339bcda3-5354-46eb-bbc0-3e58ab0f428b" />
 
@@ -76,6 +79,7 @@ RYUZAKI OUT !1!
 
 
 ' '  yes im a little femboy, i got my femboy socks and im kicking my feet txting you <3 xoxo , ,
+
 
 
 
