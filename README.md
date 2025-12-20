@@ -1,4 +1,5 @@
-## ' '  The bells are very loud today. ,  , 
+## ' '  The bells are very loud today. ,  , ![74654a19](https://github.com/user-attachments/assets/9fc08725-c567-4630-ab9b-10194b317cea)
+
 
 [T](https://www.twitch.tv/spamtincan)WITCH   .       [A](https://devestof3x.atabook.org/)TA    .    [T](https://colormytree.me/2025/01KBVT9D2Y72ZJJ2Y5F5TGCDF1)REE    .    [S](https://why-would-you-name-this.straw.page)TRAW     . EN. [P](https://en.pronouns.page/@Doctor0fPlague)RNZ 
 
@@ -65,20 +66,9 @@ SONG REC [youtube links]
 
 RYUZAKI OUT !1! 
 
-![8a3289b0](https://github.com/user-attachments/assets/e595af4c-7f2f-4d51-98f4-1625033e0cf7) 
-![c8f2975f](https://github.com/user-attachments/assets/495dd2ed-a44b-483f-8ecc-77e72a27f73a)
-
-![7964c24f](https://github.com/user-attachments/assets/0506c4b9-daea-4efe-94c1-cf982ddc20ca)
-<img width="101" height="58" alt="7fc5ed63" src="https://github.com/user-attachments/assets/a9a0f727-4745-4d49-bbb6-5e492d1335d7" />
+[d8471b36](https://github.com/user-attachments/assets/92edb167-7d5e-4d67-83dc-5dc979290026)
 
 
-
-
-![2368a0c1](https://github.com/user-attachments/assets/be2217ae-dbd1-4a73-afd8-b610ffcf513e)
-
-
-
-' '  yes im a little femboy, i got my femboy socks and im kicking my feet txting you <3 xoxo , ,
 
 
 
