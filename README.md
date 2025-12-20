@@ -66,7 +66,8 @@ SONG REC [youtube links]
 
 RYUZAKI OUT !1! 
 
-[d8471b36](https://github.com/user-attachments/assets/92edb167-7d5e-4d67-83dc-5dc979290026)
+<img width="202" height="176" alt="image" src="https://github.com/user-attachments/assets/f47b4219-35cd-43d3-a31a-b045ead8e250" />
+
 
 
 
