@@ -1,4 +1,4 @@
-## ' '  The bells are very loud today. ,  , ![74654a19](https://github.com/user-attachments/assets/9fc08725-c567-4630-ab9b-10194b317cea)
+## ' '  The bells are very loud today.,,
 
 
 [T](https://www.twitch.tv/spamtincan)WITCH   .       [A](https://devestof3x.atabook.org/)TA    .    [T](https://colormytree.me/2025/01KBVT9D2Y72ZJJ2Y5F5TGCDF1)REE    .    [S](https://why-would-you-name-this.straw.page)TRAW     . EN. [P](https://en.pronouns.page/@Doctor0fPlague)RNZ 
@@ -42,7 +42,8 @@
 - Trevor henderson 
 - DSaF 
 - FNaF 
-
+- TDLoSK 
+- Devil May Cry
 
  
 
@@ -68,6 +69,7 @@ RYUZAKI OUT !1!
 
 
 <img src="https://pix.crd.co/assets/images/gallery15/d8471b36.gif?v=c10c78ee" alt="Untitled"/>
+
 
 
 
